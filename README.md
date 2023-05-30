@@ -1,4 +1,4 @@
 # basic_html
 uWu
-ini adaah repositories pertama sayaaaa
+ini adalah repositories pertama sayaaaa
 mohon di maklumi jika berantakan haha
